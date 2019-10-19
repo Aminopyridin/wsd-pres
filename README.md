@@ -1,0 +1,1 @@
+[Презентация](https://aminopyridin.github.io/wsd-pres/#/)
